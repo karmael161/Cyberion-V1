@@ -1,5 +1,8 @@
-## 𝐃𝐎 𝐍𝐎𝐓 𝐂𝐎𝐏𝐘 𝐀𝐍𝐘𝐓𝐇𝐈𝐍𝐆....𝐉𝐔𝐒𝐓 𝐁𝐄 𝐔𝐍𝐈𝐐𝐔𝐄..
 
+
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
+## ✅𝐓𝐇𝐄 𝐁𝐎𝐓 𝐈𝐒 100% 𝐒𝐀𝐅𝐄 𝐎𝐍 𝐇𝐄𝐑𝐎𝐊𝐔💯
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=▇+▇+▇+▇+▇+▇+▇)](https://git.io/typing-svg) 
 
@@ -7,6 +10,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=𝑪𝒀𝑩𝑬𝑹𝑰𝑶𝑵+𝑺𝑷𝑨𝑹𝑲+𝑿+𝑪𝑹𝑬𝑨𝑻𝑬𝑫+𝑩𝒀+𝑪𝑨𝑹𝑳𝑻𝑬𝑪𝑯)](https://git.io/typing-svg) 
 
+<p align="centre"><img src="https://i.imgur.com/vYg1iNr.jpeg" width="500" height="500" />
 
 
 
@@ -17,9 +21,7 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ## 𝐇𝐄𝐑𝐄 𝐈𝐒 𝐓𝐇𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒 𝐅𝐎𝐑 𝐂𝐘𝐁𝐄𝐑𝐈𝐎𝐍 𝐒𝐏𝐀𝐑𝐊 𝐗 
-## 👇👇𝐓𝐀𝐏 𝐇𝐄𝐑𝐄 𝐓𝐎 𝐎𝐏𝐄𝐍 𝐄𝐕𝐄𝐑𝐘𝐓𝐇𝐈𝐍𝐆💯
-<details>
-<summary>𝐓𝐀𝐏 𝐇𝐄𝐑𝐄 𝐓𝐎 𝐒𝐄𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒</summary>
+
 
 <p align="center">
 <a href="https://github.com/carl24tech/followers"><img title="Followers" src="https://img.shields.io/github/followers/carl24tech?color=blue&style=flat-square"></a>
@@ -31,7 +33,7 @@
 <p align='center'>
 </p>
 
- <p align="center"><img src="https://profile-counter.glitch.me/{Cyberion-Spark-X}/count.svg" alt="GlobalTechInfo :: Visitor's Count" old_src="https://profile-counter.glitch.me/{carl24tech}/count.svg" /></p>
+ <p align="center"><img src="https://profile-counter.glitch.me/{Cyberion-Spark-X}/count.svg" alt="carl24tech :: Visitor's Count" old_src="https://profile-counter.glitch.me/{carl24tech}/count.svg" /></p>
 
 
 
@@ -46,7 +48,7 @@
 
   
    
-   <a href="https://github.com/carl24tech/Cyberion-Spark-X/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=blue&style=for-the-badge&logo=msi" width="290" height="38.45"/></a></p>
+   <a href="https://github.com/carl24tech/Cyberion-Spark-X/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=blue&style=for-the-badge&logo=mazda" width="297" height="40.45"/></a></p>
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -90,9 +92,7 @@
 
 
 
-<details>
-<summary>𝐂𝐋𝐈𝐂𝐊 𝐇𝐄𝐑𝐄 𝐓𝐎 𝐒𝐄𝐄 𝐃𝐄𝐕𝐄𝐋𝐎𝐏𝐄𝐑`𝐒 𝐈𝐍𝐅𝐎</summary>
-## Developer INFO:
+
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
